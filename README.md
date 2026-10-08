@@ -1,0 +1,2 @@
+# premium-leather-arm-001-hardened-leather-armor-cuir-bo
+Tired of inconsistent cuir bouilli results? Stop guessing your wax-to-water ratios and temperature curves — this Notion template turns every batch into a reproducible recipe.  The Hardened Leather Armor Cuir Bouilli Process Log eliminates the guesswork from boiling leather. Track every variable (temperature, immersion time, wax composition) in a st
